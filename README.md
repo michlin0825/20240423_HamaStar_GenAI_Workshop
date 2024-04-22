@@ -1,0 +1,1 @@
+# 20240423_HamaStar_GenAI_Workshop
